@@ -19,6 +19,7 @@ This series treats each tradition with intellectual rigor and respect, focusing 
 - 🌏 Cultural impact and global spread
 - 🔬 Contemporary relevance and challenges
 - 🔗 Connections and contrasts with other traditions
+![Awaken & Arise](https://github.com/user-attachments/assets/11598bbf-9faa-460e-b15d-b1096f7f81e3)
 
 ---
 
